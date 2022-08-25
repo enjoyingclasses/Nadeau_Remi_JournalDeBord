@@ -13,5 +13,9 @@ J'ai choisi le programme TIM pour plusieurs raisons. Tout d'abord, mon ancien pr
 * La création (Mes idées sont tous dans ma tête donc j'espère apprendre à comment à les réaliser avec ce programme)
 * Les ordinateurs
 * Les arts
+
+
 Je ne sais pas ou cela va me mener, car j'ai un intérêt pour pas mal des sphères touchées mais je ne sais pas encore dans quoi j'excelle (ou si je vais performer tout court). Je sais par contre que j'aimerais bien apprendre à faire de belles photos ou tourner de belles videos. Filmer ou photographier du contenu pour faire des trucs beau est vraiment l'un de mes buts dans cette technique mais j'ai envie de toucher à toute les facettes de celle-ci.
-- **Rémi Nadeau** 🥦 👍
+
+
+**Rémi Nadeau** 🥦 👍
