@@ -14,11 +14,12 @@ Les différentes attractions lumineuses d'Illumi nous permettent en quelque sort
 Ce qui m'intéresse le plus dans cet structure c'est comment on pourrait la rendre intéractive et offrir aux usagers une expérience plus personelle. Je trouve l'emplacement magnifique mais je sens qu'on pourrait pousser les limites de celle-ci
 
 ### [LoLEsports](https://www.youtube.com/c/lolesports)
+Ce qui m'intéresse chez eux sont leur capacités à faire des spectacles avant leur tournois. Les effets 3D qu'ils sont capables de mettre en place en direct combiné avec leur spectacle de musique, les caméras et leur "host" (La personne qui introduit les joueurs et l'évènement) crée une énergie superbe et des émotions fortes. Je trouve qu'il y en a beaucoup à apprendre en les regardants pour créer des spectacles.
 
+### [Elektra Montreal](https://www.elektramontreal.ca/)
+C'est un organisme qui organise plusieurs évènement à propos de l'art digital il ont une galerie d'exposition ou encore des festivaux. Elektra est intéressant
+parce que nous pouvons apprendre comment un galerie d'art peut fonctionner et aussi nous pouvons nous inspirer du contenu qui y est proposé.
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
-
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Ubisoft](https://www.ubisoft.com/fr-ca/)
+Ce qui m'intéresse chez ubisoft c'est leur capacité à créer des jeux videos, en plus d'être reconnu mondialement, c'est une compagnie localisé au québec. Il excèle dans le domaine du jeu vidéo et si jamais j'aimerais allez dans cette voie, je crois qu'il serait intélligent d'en apprendre sur eux ou du moins apprendre certaine de leur méthode
 
